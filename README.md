@@ -1,0 +1,2 @@
+# teamlife_tree
+Our NEW WORLD is facing an extremely alarming problem that is pollution and the reason behind this threat is loss of huge amount of TREE . With our project we will try to encourage people plant ,grow and not to cut trees without any reason.And also will try to show them a way to be benefited by planting and growing trees.And this project will help us grow our economy and make our EARTH more green and healthier than now.
